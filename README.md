@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @naveensmart6
-- 👀 I’m interested in learning new things.
-- 🌱 I’m currently learning bachelor of technology in mechanical stream.
-- 📫 How to reach me on IG mr.naveen_smart
+- 👀 I’m interested in learning innovative things.
+- 👷🏻‍♂️ I’m a bachelor of technology student in mechanical stream.
+- 📫 ⌕ Connect me on IG :- mr.naveen_smart.
   
 
 <!---
